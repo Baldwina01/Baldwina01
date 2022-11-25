@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Baldwina01
+- 👋 Hi, I’m Baldwin 
 - 👀 I’m interested in ... all things tech
 - 🌱 I’m currently learning ... How to improve my facilitation skills, Agile team/organizational maturity assessment approaches...etc. 
 - 💞️ I’m looking to collaborate on ... 
